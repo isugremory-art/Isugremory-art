@@ -1,5 +1,3 @@
-## Hi there 👋
-
 <!--# 💫 About Me:
 I'm graphic designer I like anime and wanna create games like genshin <br>
 
